@@ -8,4 +8,8 @@ Meu nome é Sabrina Bataiela
 
 -Utilizo esse espaço para organização e copartilhamento dos meus projetos desenvolvidos
 
+![](https://media.tenor.com/n3L5onL4bacAAAAi/spinning-bear.gif)
+
+
+
 
